@@ -6,9 +6,10 @@
 - 🌱 I’m currently learning deep learning and NLP.
 - 💞️ I’m looking to collaborate on dev team members.
 - 📫 How to reach me ...
-    Gmail: pungsurich@proton.me
-    Skype: https://join.skype.com/invite/rXGooaE11JGf
-    Freelancer: https://www.freelancer.com/u/sn102a1k46 
+    *Gmail: pungsurich@proton.me
+    *Skype: https://join.skype.com/invite/rXGooaE11JGf
+    *Freelancer: https://www.freelancer.com/u/sn102a1k46
+  <Hey, clients. Please let contact with me in skype.>
 - 😄 Pronouns: English : fluently, Vietnames, Chinese, Russian
 - ⚡ Fun fact:
    Tennis, Reading, 
