@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on dev team members.
 - 📫 How to reach me ...
     *Gmail: pungsurich@proton.me
-    *Skype: https://join.skype.com/invite/rXGooaE11JGf
+    *Skype: https://join.skype.com/invite/rXGooaE11JGf ID: live:.cid.95df060597abd3f
     *Freelancer: https://www.freelancer.com/u/sn102a1k46
   <Hey, clients. Please let contact with me in skype.>
 - 😄 Pronouns: English : fluently, Vietnames, Chinese, Russian
