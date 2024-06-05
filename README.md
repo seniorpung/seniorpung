@@ -6,11 +6,8 @@
 - 🌱 I’m currently learning deep learning and NLP.
 - 💞️ I’m looking to collaborate on dev team members.
 - 📫 How to reach me ...
-    *Email: pungsurich@proton.me
-    *Skype ID: .cid.95df060597abd3f
-  ✨Just Click this: https://join.skype.com/ARGz7X8sCBgq ✨
-  <Hey, clients. Please let contact with me in skype.>
-- 😄 Pronouns: English : fluently, Vietnames, Chinese, Russian
+    ✨pungsurich@proton.me✨
+- 😄 Pronouns: English, Chinese
 - ⚡ Fun fact:
    Tennis, Reading, 
 
