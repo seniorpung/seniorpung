@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning deep learning and NLP.
 - 💞️ I’m looking to collaborate on dev team members.
 - 📫 How to reach me ...
-    ✨pungsurich@proton.me✨
+    ✨✨
 - 😄 Pronouns: English, Chinese
 - ⚡ Fun fact:
    Tennis, Reading, 
