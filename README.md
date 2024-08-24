@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning deep learning and NLP.
 - 💞️ I’m looking to collaborate on dev team members.
 - 📫 How to reach me ...
-    ✨✨
+    ✨Skype Id:: live:.cid.95df060597abd3f✨
 - 😄 Pronouns: English, Chinese
 - ⚡ Fun fact:
    Tennis, Reading, 
