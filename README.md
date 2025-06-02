@@ -5,6 +5,7 @@
    My website design skill is figma, bootstrap 5, react mui, metronic ...
 - 🌱 I’m currently learning deep learning and NLP.
 - 💞️ I’m looking to collaborate on dev team members.
+- ✨ How to reach me : https://discord.gg/rWhamtcM
 - 😄 Pronouns: English, Chinese
 - ⚡ Fun fact:
    Tennis, Reading, 
